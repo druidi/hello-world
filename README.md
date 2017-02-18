@@ -1,2 +1,3 @@
 # hello-world
 The inane ramblings of insanity.
+I won't. You wouldn't understand anyway. Yes... This isn't a defence mechanism...
